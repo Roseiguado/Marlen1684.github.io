@@ -8,7 +8,7 @@ I'm totally in love with this new journey in my life. Be here, at school learnin
 # Goals
 
 I just stared the CTRL+SHIFT Code Scool.
-My goal is be prepared, be successful. I want to learn everything about computer science. I really want to become in a good developer. I'll be a good provider for my kids.
+My goal is be prepared, be successful. I want to learn everything about computer science. I really want to become in a good developer. Then I'll be a better provider for my kids.
 I would like to say that I'm doing this only for them, but no. I'm doing this for me too.
 I just learn that the only way to teach them and guide them to the right way in life it's through my example.
 i just want to have every single tool to be a good person, good mother and a successful women.
