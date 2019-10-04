@@ -4,7 +4,6 @@ My name is Marlen Brito. I'm a code student. I live with my 3 kids in a very sma
 That aparment is our little piece of heaven. We have a beautiful and silly dog called Pepita.
 I'm totally in love with this new journey in my life. Be here, at school learning again, it's a dream come true.
 
-
 # Goals
 
 I just stared the CTRL+SHIFT Code Scool.
@@ -17,7 +16,6 @@ I just want to have every single tool to be a good person, good mother and a suc
 
 You can contact me at:
 marlenbritop@gmail.com
-@MarlenBrito8
 
 # My Blog
 
