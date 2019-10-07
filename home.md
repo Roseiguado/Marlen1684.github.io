@@ -1,12 +1,12 @@
 # About Me
 
-My name is Marlen Brito. I'm a code student. I live with my 3 kids in a very small but warming apartment. 
+My name is Marlen Brito. I'm a code student. I live with my 3 kids in a very small but cuzy apartment. 
 That aparment is our little piece of heaven. We have a beautiful and silly dog called Pepita.
 I'm totally in love with this new journey in my life. Be here, at school learning again, it's a dream come true.
 
 # Goals
 
-I just stared the CTRL+SHIFT Code Scool.
+I just started the CTRL+SHIFT Code Scool.
 My goal is be prepared, be successful. I want to learn everything about computer science. I really want to become a good developer. Then I'll be a better provider for my kids.
 I would like to say that I'm doing this only for them, but no. I'm doing this for me too.
 I just learn that the only way to teach them and guide them to the right way in life it's through my example.
