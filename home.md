@@ -19,7 +19,7 @@ marlenbritop@gmail.com
 
 # My Blog
 
-# Week 1
+## Week 1
 
 Just Talking About Dreams
 
@@ -42,7 +42,6 @@ Now the desire to learn returned, but suddenly I was lost in a world that looked
 
 Now let me tell this, it took me almost twenty years to turn my head again to that dream that I had when I first used a computer; and the only thing the teacher allowed me to do that day, was to change the size of the font. Yes, only that! 
 Life happens. No doubt. But no matter what, let’s turn to what one day made us dream. And that will be the first step of our journey. Don't accept the tricks of your mind looking for logical reasons to quit. Just dream again... Be brave!
-
 ## Post 1 - OCT 2, 2019
 
-# Week 2 
+## Week 2 
