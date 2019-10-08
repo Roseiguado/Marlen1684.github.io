@@ -19,7 +19,9 @@ marlenbritop@gmail.com
 
 # My Blog
 
-Talking About Dreams
+# Week 1
+
+Just Talking About Dreams
 
 The first time I had contact with a computer I was 16 years old. I was in high school. The emotion that I felt at the beginning and my dreams about to learn, disappeared quickly. There were only three computers for a group of thirteen students. 
 And guess what? The students who had access to computers and learn, were always the same ones. I wasn’t one of them, of course. The others (me included) had to stay behind them just watching, without understanding anything about the class or what the teacher said. 
@@ -41,5 +43,6 @@ Now the desire to learn returned, but suddenly I was lost in a world that looked
 Now let me tell this, it took me almost twenty years to turn my head again to that dream that I had when I first used a computer; and the only thing the teacher allowed me to do that day, was to change the size of the font. Yes, only that! 
 Life happens. No doubt. But no matter what, let’s turn to what one day made us dream. And that will be the first step of our journey. Don't accept the tricks of your mind looking for logical reasons to quit. Just dream again... Be brave!
 
- 
 ## Post 1 - OCT 2, 2019
+
+# Week 2 
