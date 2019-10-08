@@ -46,3 +46,7 @@ Now let me tell this, it took me almost twenty years to turn my head again to th
 Life happens. No doubt. But no matter what, let’s turn to what one day made us dream. And that will be the first step of our journey. Don't accept the tricks of your mind looking for logical reasons to quit. Just dream again... Be brave!
 
 ## Week 2 
+
+*October 8, 2019*
+
+
