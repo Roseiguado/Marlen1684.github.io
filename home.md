@@ -21,7 +21,7 @@ marlenbritop@gmail.com
 
 ## Week 1
 
-###October 2, 2019
+*October 2, 2019*
 
 Just Talking About Dreams
 
