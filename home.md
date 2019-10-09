@@ -23,7 +23,7 @@ marlenbritop@gmail.com
 
 *October 2, 2019*
 
-Just Talking About Dreams
+### Just Talking About Dreams
 
 The first time I had contact with a computer I was 16 years old. I was in high school. The emotion that I felt at the beginning and my dreams about to learn, disappeared quickly. There were only three computers for a group of thirteen students. 
 And guess what? The students who had access to computers and learn, were always the same ones. I wasn’t one of them, of course. The others (me included) had to stay behind them just watching, without understanding anything about the class or what the teacher said. 
