@@ -1,4 +1,4 @@
-<h1>About Me</h1>
+# About Me
 
 My name is Marlen Brito. I'm a code student. I live with my 3 kids in a very small but cuzy apartment. 
 That aparment is our little piece of heaven. We have a beautiful and silly dog called Pepita.
