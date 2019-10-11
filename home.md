@@ -47,6 +47,24 @@ Life happens. No doubt. But no matter what, let’s turn to what one day made us
 
 ## Week 2 
 
-*October 8, 2019*
+*October 11, 2019* 
 
+### Overcoming Obstacles
 
+The last week a talked about dreams and goals in life and how easy it's to lose them along the way. Now it's time to talk about life responding to what we ask...
+
+There are opportunities that we have waited for a lifetime, and that wait put us in a very foggy place sometimes. Believe me, there is nothing wrong on that. Everything goes wrong when we are unable to be pacient but a fighter at the same time. Is bad when we don't know how to distinguish the good things that we have, and the worst moment is when we are blind and closed to the world.
+
+If you have been in that foggy place, you will know that in the distance there are always lights that direct us through the darkness or we would be completely lost. For me, one of that lights was the need for knowlegde and the desire to learn something diferent someday.
+
+The first time I had an opportunity in front of me, after so many years, I was filled with fears, panicked to be honest. I realized very soon that the opportunities never come alone, they come with many obstacles and very huge challenges sometimes.
+
+Now,  we must analyze our ability to adapt ourselves to the changes, our strenght to face the obstacles we will have and the conviction of working hard on our weaknesses.
+
+There will be a lot of difficulties and challenges on our way. May be we will lost friendships, we may have finantial problems, illnesses, stress, loneliness, maybe nobody believes in you. It can be happening everything at the same time! But nothing should be stronger than all those lights that we have just in front of us to be reached. 
+
+I still have to many questions without an answer, but there is something that I'm pretty sure...I know how obstacles can impact our lives in a positive way if we are willing to learn from them. I know the amazing way that our character is strengthened in those moments of darkness.
+
+The best way to overcome obstacles is to face them, even if you have a million fears. In those moments, when you feel insane or unable to make it, you must know two things: you are worth it, and you can do it.
+
+A good friend told me once: "Just believe in you". Believe me...it works.
