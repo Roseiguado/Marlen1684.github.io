@@ -68,3 +68,25 @@ I still have to many questions without an answer, but there is something that I'
 The best way to overcome obstacles is to face them, even if you have a million fears. In those moments, when you feel insane or unable to make it, you must know two things: you are worth it, and you can do it.
 
 A good friend told me once: "Just believe in you". Believe me...it works.
+
+## Week 3
+
+*October 19, 2019*
+
+### Intro To Web Development
+
+This week was mostly seeing the complete picture of this wonderful and extensive field, that we will have as a web developer.
+
+I can't even explain how great and invaluable it is for a totally new person in this field, to meet such professional people, dedicated and passionate about what they do.
+They showed me that even with our complications and limitations, everything is possible.
+That the level of knowledge doesn,t really matter to start. It can take time, and even starting from zero, you can achieve each one of your goals. That achievement will depend only on you, on your time, and the passion for what you do.
+
+They opened my eyes  to a world that I didn't even know existed.
+
+Is is here that you can enjoy pure creativity and the flow in it will be amazing. There is always something to improve, to create, to learn...
+
+It was definitely a week of great learning. I would like to share some interesting things that you will find being a web developer: 
+* You can create
+
+
+Each one of these wonderful people has made me confirm that our victory is never to give up, and improve every day. we are our best challenge to achieve...
