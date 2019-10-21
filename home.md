@@ -79,7 +79,7 @@ This week was mostly seeing the complete picture of this wonderful and extensive
 
 I can't even explain how great and invaluable it is for a totally new person in this field, to meet such professional people, dedicated and passionate about what they do.
 They showed me that even with our complications and limitations, everything is possible.
-That the level of knowledge doesn,t really matter to start. It can take time, and even starting from zero, you can achieve each one of your goals. That achievement will depend only on you, on your time, and the passion for what you do.
+That the level of knowledge doesn't really matter to start. It can take time, and even starting from zero, you can achieve each one of your goals. That achievement will depend only on you, on your time, and the passion for what you do.
 
 They opened my eyes  to a world that I didn't even know existed.
 
@@ -91,11 +91,11 @@ It was definitely a week of great learning. I would like to share some interesti
 
 * You can create whatever you want. Can you imagine being able to move your ideas from your brain to your computer? All you need is your creativity. It's fascinating to know that you can create something from nothing.
 * It is definitely not boring at all. Every day can be completely different and interesting. It can be frustrating sometimes but it will be fun also.
-* You will become more creative and you will excersise your mind and your logic in a way you didn't before.
+* You will become more creative and you will exercise your mind and your logic in a way you didn't before.
 * Your learning will be constant and you will have many resources to do it efficiently.
 * You don't need formal education but you really need to be self-taught. That will be the most important tool to become the Web Developer you want to be.
 * Your training and preparation is going to be constant.
-* You will probably feel at some point, that you are not able to do something, but you will do it. That will make you grow ang you'll feel pure satisfaction.
+* You will probably feel at some point, that you are not able to do something, but you will do it. That will make you grow and you'll feel pure satisfaction.
 * Gratification will be an important part of your journey. You should celebrate all your achievements, even if they are small.
 * Every single thing you learn will be useful at some point in your path, value them.
 * This is the field with more projection and versatility, the one with less unemployment.
