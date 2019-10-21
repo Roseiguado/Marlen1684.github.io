@@ -2,7 +2,7 @@
 
 My name is Marlen Brito. I'm a code student. I live with my 3 kids in a very small but cuzy apartment. 
 That aparment is our little piece of heaven. We have a beautiful and silly dog called Pepita.
-I'm totally in love with this new journey in my life. Be here, at school learning again, it's a dream come true.
+I'm totally in love with this new journey in my life. Being here at school learning again, is a dream come true.
 
 # Goals
 
