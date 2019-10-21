@@ -71,7 +71,7 @@ A good friend told me once: "Just believe in you". Believe me...it works.
 
 ## Week 3
 
-*October 19, 2019*
+*October 20, 2019*
 
 ### Intro To Web Development
 
